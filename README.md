@@ -1,5 +1,5 @@
 # 💫 About Me:
-🐍I'm currently completing a cyber course at Ecom school.<br>🎓I'm 3rd year student software engineering at Afeka college.<br>🤖I'm enthusiastic with expanding  my knowledge.<br>🤗I'm very friendly and we can easily become friends.<br>🔑Ask me about Real estate .<br>🤣Fun fact - Mi Englich is nat perfekt .<br><br>
+🐍I'm currently completing a cyber course at Ecom school.<br>🎓I'm 4rd year student software engineering at Afeka college.<br>🤖I'm enthusiastic with expanding  my knowledge.<br>🤗I'm very friendly and we can easily become friends.<br>🔑Ask me about Real estate .<br>🤣Fun fact - Mi Englich is nat perfekt .<br><br>
 
 
 ## 🌐 Socials:
